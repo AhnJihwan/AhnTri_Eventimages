@@ -32,4 +32,6 @@ Thanks,
 9/20/2021, Jihwan Ahn.
 
 ![kthx2021](20210919_115117.jpg)
-9/22~23->Archived.
+화천대유하세요~~
+
+Archived.
