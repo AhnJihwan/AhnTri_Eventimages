@@ -6,4 +6,4 @@
 
 대한독립 만세!!
 
-![31mov2022edition](31mov2022edi)
+![31mov2022edition](31mov2022edi.jpg)
